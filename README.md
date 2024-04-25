@@ -1,1 +1,1 @@
-# .github
+# Hollus Tech Page
