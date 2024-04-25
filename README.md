@@ -1,1 +1,0 @@
-# Hollus Tech Page
